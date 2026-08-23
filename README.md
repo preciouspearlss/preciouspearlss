@@ -103,4 +103,7 @@ fandoms I am in!
 
 ୨୧
 
+<img width="400" height="300" alt="17874730640619136221500289973986" src="https://github.com/user-attachments/assets/d3adc6be-b60b-4858-8f4e-c52b30693234" />
+
+i love little mj ♡
 
