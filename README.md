@@ -1,4 +1,79 @@
+<div align="center">
 
+<br>
+
+<table>
+<tr>
+<td align="center" width="560">
+
+<br>
+
+<h3>𓆩 🖤 𓆪  𝐍𝐎𝐖 𝐏𝐋𝐀𝐘𝐈𝐍𝐆  𓆩 🖤 𓆪</h3>
+
+<p>━━━━━━━━━━━━━━━━━━━━━━━━━━━━</p>
+
+<!-- 💿 SPINNING VINYL -->
+<img
+src="YOUR-SPINNING-VINYL-GIF-HERE"
+width="170"
+height="170"
+alt="Spinning vinyl">
+
+<br><br>
+
+<h2>✦ 𝐈𝐧 𝐭𝐡𝐞 𝐂𝐥𝐨𝐬𝐞𝐭 ✦</h2>
+
+<p>
+<sub>𝐌𝐈𝐂𝐇𝐀𝐄𝐋 𝐉𝐀𝐂𝐊𝐒𝐎𝐍</sub>
+</p>
+
+<p>𖤐 ──────────────── 𖤐</p>
+
+<!-- PROGRESS BAR -->
+
+<code>━━━━━━━━━━━━━━━●━━━━━━━━━━━━</code>
+
+<br>
+
+<sub>0:00 ───────────────── 6:04</sub>
+
+<br><br>
+
+<p>
+<code>◀</code>
+&nbsp;&nbsp;&nbsp;
+<code>Ⅱ</code>
+&nbsp;&nbsp;&nbsp;
+<code>▶</code>
+</p>
+
+<br>
+
+<p>
+<sub>♫ 𝐌𝐈𝐂𝐇𝐀𝐄𝐋 𝐉𝐀𝐂𝐊𝐒𝐎𝐍 &nbsp;•&nbsp; 𝐈𝐍 𝐓𝐇𝐄 𝐂𝐋𝐎𝐒𝐄𝐓 ♫</sub>
+</p>
+
+<br>
+
+<a href="https://open.spotify.com/search/In%20the%20Closet%20Michael%20Jackson">
+<img
+src="https://img.shields.io/badge/OPEN%20IN%20SPOTIFY-050505?style=for-the-badge&logo=spotify&logoColor=white">
+</a>
+
+<br><br>
+
+<p>━━━━━━━━━━━━━━━━━━━━━━━━━━━━</p>
+
+
+</pre>
+
+</td>
+</tr>
+</table>
+
+<br>
+
+</div>
 
 <div align="center">
 
