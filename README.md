@@ -1,4 +1,10 @@
-⊱︼︼︼︼︼︼︼︼︼︼︼︼︼︼︼︼︼︼⊰
+<img width="150" height="20" alt="17874732490794960293160569251225" src="https://github.com/user-attachments/assets/6b53d342-cfca-4bc6-bc1e-ff3674d48603" />
+
+<img width="150" height="20" alt="17874733118825120157081613895404" src="https://github.com/user-attachments/assets/b59a89df-208d-4ab6-bf10-02646ee4a116" />
+
+
+<img width="300" height="40" alt="17874734243994433194109933097303" src="https://github.com/user-attachments/assets/1b6d3af1-6d83-4c1f-b00e-daf3cf7958bb" />
+
 
 ⊹ . 𝙄 𝙒𝙖𝙣𝙣𝙖 𝘽𝙚 𝙒𝙝𝙚𝙧𝙚 𝙔𝙤𝙪 𝘼𝙧𝙚
 <img width="500" height="214" alt="17874704116679083091766259810758" src="https://github.com/user-attachments/assets/ec440b75-4333-4eec-a946-e9cf4eaac01f" />
