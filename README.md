@@ -1,3 +1,4 @@
+
 <img width="150" height="20" alt="17874732490794960293160569251225" src="https://github.com/user-attachments/assets/6b53d342-cfca-4bc6-bc1e-ff3674d48603" />
 
 <img width="150" height="20" alt="17874733118825120157081613895404" src="https://github.com/user-attachments/assets/b59a89df-208d-4ab6-bf10-02646ee4a116" />
@@ -104,6 +105,8 @@ fandoms I am in!
 ⊱ TADC & MD
 
 ⊱ DN (Death Note) 
+
+𖥔 Sanrio/Hello Kitty
 
 ⊱ and so much more. +
 
