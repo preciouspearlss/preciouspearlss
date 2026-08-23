@@ -1,10 +1,12 @@
+<img width="825" height="300" alt="17874738656151383157837099005365" src="https://github.com/user-attachments/assets/42c2c516-9d2a-488a-9790-2d2c553739e7" />
 
+━━━━━━━━━━━━━━━━━━━━━━━━━
 <img width="150" height="20" alt="17874732490794960293160569251225" src="https://github.com/user-attachments/assets/6b53d342-cfca-4bc6-bc1e-ff3674d48603" />
 
 <img width="150" height="20" alt="17874733118825120157081613895404" src="https://github.com/user-attachments/assets/b59a89df-208d-4ab6-bf10-02646ee4a116" />
 
 
-<img width="300" height="40" alt="17874734243994433194109933097303" src="https://github.com/user-attachments/assets/1b6d3af1-6d83-4c1f-b00e-daf3cf7958bb" />
+
 
 
 ⊹ . 𝙄 𝙒𝙖𝙣𝙣𝙖 𝘽𝙚 𝙒𝙝𝙚𝙧𝙚 𝙔𝙤𝙪 𝘼𝙧𝙚
@@ -61,6 +63,8 @@ dni criteria (!)
 
 ୨୧
 
+<img width="300" height="40" alt="17874734243994433194109933097303" src="https://github.com/user-attachments/assets/1b6d3af1-6d83-4c1f-b00e-daf3cf7958bb" />
+
 more info about me. 
 
 ✩ I am a MINOR. remember that, keep that in mind :). 
@@ -112,7 +116,9 @@ fandoms I am in!
 
 ୨୧
 
-<img width="400" height="300" alt="17874730640619136221500289973986" src="https://github.com/user-attachments/assets/d3adc6be-b60b-4858-8f4e-c52b30693234" />
+<img width="220" height="185" alt="17874730640619136221500289973986" src="https://github.com/user-attachments/assets/d3adc6be-b60b-4858-8f4e-c52b30693234" />
 
 i love little mj ♡
 
+━━━━━━━━━━━━━━━━━━━━━━━━━━━
+<img width="825" height="300" alt="17874738656151383157837099005365" src="https://github.com/user-attachments/assets/42c2c516-9d2a-488a-9790-2d2c553739e7" />
