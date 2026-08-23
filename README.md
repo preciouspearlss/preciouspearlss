@@ -69,6 +69,8 @@ more info about me.
 ୨୧
 
 
+<img width="220" height="185" alt="178747287399526614746161513807" src="https://github.com/user-attachments/assets/615d9afe-6403-487c-943f-5487a2876230" />
+
 fandoms I am in! 
 
 ⊱ JJK
@@ -100,4 +102,5 @@ fandoms I am in!
 ⊱ and so much more. +
 
 ୨୧
+
 
