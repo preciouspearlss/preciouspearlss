@@ -68,7 +68,8 @@ more info about me.
 
 ୨୧
 
-Fandoms I am In! 
+
+fandoms I am in! 
 
 ⊱ JJK
 
@@ -89,4 +90,14 @@ Fandoms I am In!
 ⊱ Pokémon
 
 ⊱ DAN DA DAN. 
+
+⊱ Alien Stage
+
+⊱ TADC & MD
+
+⊱ DN (Death Note) 
+
+⊱ and so much more. +
+
+୨୧
 
