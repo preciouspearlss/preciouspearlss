@@ -1,124 +1,298 @@
-<img width="825" height="300" alt="17874738656151383157837099005365" src="https://github.com/user-attachments/assets/42c2c516-9d2a-488a-9790-2d2c553739e7" />
+# 🖤 MONOCHROME GOTHIC GITHUB PROFILE
 
-━━━━━━━━━━━━━━━━━━━━━━━━━
-<img width="150" height="20" alt="17874732490794960293160569251225" src="https://github.com/user-attachments/assets/6b53d342-cfca-4bc6-bc1e-ff3674d48603" />
+<div align="center">
 
-<img width="150" height="20" alt="17874733118825120157081613895404" src="https://github.com/user-attachments/assets/b59a89df-208d-4ab6-bf10-02646ee4a116" />
+<img src="https://github.com/user-attachments/assets/42c2c516-9d2a-488a-9790-2d2c553739e7" width="825">
 
+<br>
 
+```
+╔══════════════════════════════════════════════════════════════════════╗
+```
 
+### ⛓️ 𝕴 𝖂𝖆𝖓𝖓𝖆 𝕭𝖊 𝖂𝖍𝖊𝖗𝖊 𝖄𝖔𝖚 𝕬𝖗𝖊 ⛓️
 
+**୨୧ ──────────────── ♡ ──────────────── ୨୧**
 
-⊹ . 𝙄 𝙒𝙖𝙣𝙣𝙖 𝘽𝙚 𝙒𝙝𝙚𝙧𝙚 𝙔𝙤𝙪 𝘼𝙧𝙚
-<img width="500" height="214" alt="17874704116679083091766259810758" src="https://github.com/user-attachments/assets/ec440b75-4333-4eec-a946-e9cf4eaac01f" />
+<img src="https://github.com/user-attachments/assets/6b53d342-cfca-4bc6-bc1e-ff3674d48603" width="150">
+&nbsp;&nbsp;
+<img src="https://github.com/user-attachments/assets/b59a89df-208d-4ab6-bf10-02646ee4a116" width="150">
 
+**✦ ─────── ⋆｡°✩°｡⋆ ─────── ✦**
 
+</div>
 
-✦ hi im onyxx or eli! pearls is fine too! :)
+---
 
-୨୧ about me
+<table>
+<tr>
 
-☆ huge MJ fanatic/hyperfixation! (dw I'm not that type of person to tell you his whole lore lol, maybe little facts!) 
+<td width="48%" valign="top">
 
-★ I am she/her but I won't freak out if anyone calls me out of my preferred gender
+<div align="center">
 
-☆ I usually sit in the FNAF area or where my friends sit! my locations do differ though, I like to move around a lot.
+### 🎀 ୨୧ **ABOUT ME** ୨୧ 🎀
 
-★ I have high sensitivity so you really can't say certain things to me, I will freely block/hide you.. I am quick to end arguments :/
+`┈┈┈┈┈┈┈┈┈┈┈┈`
 
-✩ also I hate hate hate HATTE being interrupted or cut over so please don't do that. Ill hate you. 
+<img src="https://github.com/user-attachments/assets/ac26b323-476d-4e36-b7b6-0bec85697cd1" width="180">
 
-୨୧
+</div>
 
-<img width="245" height="204" alt="17874721340528754322362211724686" src="https://github.com/user-attachments/assets/ac26b323-476d-4e36-b7b6-0bec85697cd1" />
+**♡ hi im onyxx or eli!**
+pearls is fine too! :)
 
-༅ I am a generally a nice person rather then very mean and bitter, so please approach me. I appericate c+h! 
+<br>
 
-୨୧
+> ✦ **huge MJ fanatic / hyperfixation!**
+> dw I'm not that type of person to tell you his whole lore lol, maybe little facts!
 
-dni criteria (!) 
+> ✦ **I use she/her**, but I won't freak out if anyone calls me out of my preferred gender.
 
-➯ people who believe/support in the MJ allegations and come after the fans.
+> ✦ I usually sit in the **FNAF area** or where my friends sit! My locations do differ though — I like to move around a lot.
 
-⊱ rape jokers
+> ✦ I have high sensitivity, so you really can't say certain things to me. I will freely block/hide you. I am quick to end arguments :/
 
-⊱ people who are racist/discriminators
+> ✦ I **HATE HATE HATE HATTE** being interrupted or cut over, so please don't do that. I'll hate you.
 
-⊱ fandoms that are problematic/extremely controversial and hated  
-⊱ pedos 
+<div align="center">
 
-⊱ racist xenophobics 
+`♡ ──────── ⛓️ ──────── ♡`
 
-⊱ sexist misogynistics
+**please approach me!**
 
-⊱ people who think fiction doesn't affect reality
+*I appreciate c+h ♡*
 
-⊱ ableists
+</div>
 
-⊱ if you support military aggression
+</td>
 
-⊱ queerphobics
+<td width="4%"></td>
 
-⊱ anti-semitic, zionist, any kind pro-ship
+<td width="48%" valign="top">
 
-୨୧
+<div align="center">
 
-<img width="300" height="40" alt="17874734243994433194109933097303" src="https://github.com/user-attachments/assets/1b6d3af1-6d83-4c1f-b00e-daf3cf7958bb" />
+### 🪽 ୨୧ **MORE INFO** ୨୧ 🪽
 
-more info about me. 
+`┈┈┈┈┈┈┈┈┈┈┈┈`
 
-✩ I am a MINOR. remember that, keep that in mind :). 
+</div>
 
-★ I am a black person, not caucasian or any other lighter race, black. okay? 
+> 🖤 **I am a MINOR.**
+> Remember that, keep that in mind. :)
 
-☆ my pony styles change a lot, so it's okay if you think I am unrecognizable by look. 
+> 🩶 **I am a black person.**
 
-★ please do not copy my skins, they are not for stealing at all. I also leave little details on my skins to ensure that I know that you guys won't know. hehe. 
+> 🖤 My pony styles change a lot, so it's okay if you think I am unrecognizable by look.
 
-✩ I am an artist! I just don't show my digital art on the internet unless it's my friends. 
+> 🩶 Please **do not copy my skins**. They are not for stealing at all.
 
-୨୧
+> 🖤 I leave little details on my skins to ensure that I know you guys won't know. hehe.
 
+> 🩶 I am an **artist!**
 
-<img width="220" height="185" alt="178747287399526614746161513807" src="https://github.com/user-attachments/assets/615d9afe-6403-487c-943f-5487a2876230" />
+> 🖤 I don't show my digital art on the internet unless it's my friends.
 
-fandoms I am in! 
+<div align="center">
 
-⊱ JJK
+`────── ⋆⋅☆⋅⋆ ──────`
 
-⊱ Little Miss Fortune
+♡ **little things about me** ♡
 
-⊱ FNF & FNAF
+`────── ⋆⋅☆⋅⋆ ──────`
 
-⊱ Forsaken (a little) 
+</div>
 
-⊱ DW... (unfortunately.) 
+</td>
 
-⊱ Undertale & Deltarune
+</tr>
+</table>
 
-⊱ Eddsworld
+<br>
 
-⊱ Ranma 1/2 
+<div align="center">
 
-⊱ Pokémon
+<img src="https://github.com/user-attachments/assets/ec440b75-4333-4eec-a946-e9cf4eaac01f" width="500">
 
-⊱ DAN DA DAN. 
+### `༅ 𝕴 𝖆𝖒 𝖌𝖊𝖓𝖊𝖗𝖆𝖑𝖑𝖞 𝖆 𝖓𝖎𝖈𝖊 𝖕𝖊𝖗𝖘𝖔𝖓 ༅`
 
-⊱ Alien Stage
+**rather than very mean and bitter, so please approach me. ♡**
 
-⊱ TADC & MD
+`╰┈➤ c+h is appreciated!`
 
-⊱ DN (Death Note) 
+</div>
 
-𖥔 Sanrio/Hello Kitty
+---
 
-⊱ and so much more. +
+<div align="center">
 
-୨୧
+<img src="https://github.com/user-attachments/assets/1b6d3af1-6d83-4c1f-b00e-daf3cf7958bb" width="300">
 
-<img width="220" height="185" alt="17874730640619136221500289973986" src="https://github.com/user-attachments/assets/d3adc6be-b60b-4858-8f4e-c52b30693234" />
+# 🕸️ **DNI CRITERIA (!) ** 🕸️
 
-i love little mj ♡
+`╭────────────────────────────────────────────╮`
 
-━━━━━━━━━━━━━━━━━━━━━━━━━━━
-<img width="825" height="300" alt="17874738656151383157837099005365" src="https://github.com/user-attachments/assets/42c2c516-9d2a-488a-9790-2d2c553739e7" />
+</div>
+
+<table>
+<tr>
+
+<td width="50%" valign="top">
+
+### 🖤 `01` — **DO NOT INTERACT**
+
+> ✧ people who believe/support in the MJ allegations and come after the fans
+
+> ✧ rape jokers
+
+> ✧ people who are racist / discriminators
+
+> ✧ fandoms that are problematic / extremely controversial and hated
+
+> ✧ pedos
+
+> ✧ racist xenophobics
+
+</td>
+
+<td width="50%" valign="top">
+
+### 🩶 `02` — **KEEP AWAY**
+
+> ✧ sexist / misogynistic people
+
+> ✧ people who think fiction doesn't affect reality
+
+> ✧ ableists
+
+> ✧ if you support military aggression
+
+> ✧ queerphobics
+
+> ✧ anti-semitic
+
+> ✧ Zionist
+
+> ✧ any kind of pro-ship
+
+</td>
+
+</tr>
+</table>
+
+<div align="center">
+
+`╰────────────────────────────────────────────╯`
+
+**⛓️ please respect my boundaries. ⛓️**
+
+`♡ ───────────────────────────── ♡`
+
+</div>
+
+---
+
+<table>
+<tr>
+
+<td width="60%" valign="top">
+
+<div align="center">
+
+### 🕯️ ୨୧ **FANDOMS I AM IN!** ୨୧ 🕯️
+
+`┈┈┈┈┈┈┈┈┈┈┈`
+
+</div>
+
+<table>
+<tr>
+<td>
+
+♡ **JJK**
+♡ **Little Miss Fortune**
+♡ **FNF & FNAF**
+♡ **Forsaken**
+♡ **DW... unfortunately.**
+♡ **Undertale & Deltarune**
+♡ **Eddsworld**
+
+</td>
+
+<td>
+
+♡ **Ranma 1/2**
+♡ **Pokémon**
+♡ **DAN DA DAN.**
+♡ **Alien Stage**
+♡ **TADC & MD**
+♡ **DN — Death Note**
+♡ **Sanrio / Hello Kitty**
+
+</td>
+</tr>
+</table>
+
+<div align="center">
+
+`✦ and so much more. + ✦`
+
+</div>
+
+</td>
+
+<td width="40%">
+
+<div align="center">
+
+<img src="https://github.com/user-attachments/assets/615d9afe-6403-487c-943f-5487a2876230" width="220">
+
+### `♡ 𝖋𝖆𝖓𝖉𝖔𝖒 𝖊𝖓𝖙𝖍𝖚𝖘𝖎𝖆𝖘𝖙 ♡`
+
+`🖤 ⋆｡°✩°｡⋆ 🩶`
+
+</div>
+
+</td>
+
+</tr>
+</table>
+
+---
+
+<div align="center">
+
+### ⛓️ ─────────── **LITTLE MJ CORNER** ─────────── ⛓️
+
+<img src="https://github.com/user-attachments/assets/d3adc6be-b60b-4858-8f4e-c52b30693234" width="220">
+
+<br>
+
+# 𝖎 𝖑𝖔𝖛𝖊 𝖑𝖎𝖙𝖙𝖑𝖊 𝖒𝖏 ♡
+
+`༺♡༻ ─────────────── ༺♡༻`
+
+</div>
+
+---
+
+<div align="center">
+
+```
+╔══════════════════════════════════════════════════════════════════╗
+║                                                                  ║
+║             ♡  thank you for visiting my profile  ♡              ║
+║                                                                  ║
+║        ⛓️   🖤   🎀   🩶   ♡   🩶   🎀   🖤   ⛓️        ║
+║                                                                  ║
+╚══════════════════════════════════════════════════════════════════╝
+```
+
+<img src="https://github.com/user-attachments/assets/42c2c516-9d2a-488a-9790-2d2c553739e7" width="825">
+
+### `🖤 black • white • grey • gothic • cute 🖤`
+
+**୨୧ ─────────────── ⛓️ ─────────────── ୨୧**
+
+</div>
