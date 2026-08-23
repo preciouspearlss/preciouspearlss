@@ -23,7 +23,44 @@
 </div>
 
 ---
+<table align="center">
+<tr>
+<td align="center">
 
+<img
+  src="https://i.scdn.co/image/ab67616d0000aa5432a7d87248d1b75463483df5"
+  width="100"
+  height="100"
+  style="object-fit: cover;"
+/>
+
+<br>
+
+<b> Baby Be Mine </b>
+
+<br>
+
+<sub>♡ Michael Jackson ♡</sub>
+
+<br><br>
+
+`♡ ━━━━━━━━●━━━━ ♡`
+
+<br>
+
+<sub>↶　◀　▶　↷</sub>
+
+<br><br>
+
+<a href="https://open.spotify.com/track/6XYbMGvtl6tlPoGWaiH7EY">
+  🎧 <b>listen on Spotify</b>
+</a>
+
+</td>
+</tr>
+</table>
+
+</div>
 <table>
 <tr>
 
@@ -300,6 +337,6 @@ pearls is fine too! :)
 
 </div>
 
-**୨୧ ─────────────── ⛓️ ─────────────── ୨୧**
+`୨୧ ─────────────── ⛓️ ─────────────── ୨୧`
 
 </div>
