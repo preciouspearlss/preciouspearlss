@@ -285,6 +285,20 @@ pearls is fine too! :)
 
 <img src="https://github.com/user-attachments/assets/42c2c516-9d2a-488a-9790-2d2c553739e7" width="825">
 
+<div align="center">
+
+
+<img src="https://komarev.com/ghpvc/?username=preciouspearlss&style=flat-square&color=111111&label=Profile%20views">
+
+
+<img src="https://img.shields.io/github/followers/preciouspearlss?style=flat-square&color=111111&label=Followers">
+
+
+
+</div>
+
+
+</div>
 
 **୨୧ ─────────────── ⛓️ ─────────────── ୨୧**
 
