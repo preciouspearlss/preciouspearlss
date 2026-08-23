@@ -1,4 +1,4 @@
-# 🖤 MONOCHROME GOTHIC GITHUB PROFILE
+
 
 <div align="center">
 
@@ -280,13 +280,7 @@ pearls is fine too! :)
 <div align="center">
 
 ```
-╔══════════════════════════════════════════════════════════════════╗
-║                                                                  ║
-║             ♡  thank you for visiting my profile  ♡              ║
-║                                                                  ║
-║        ⛓️   🖤   🎀   🩶   ♡   🩶   🎀   🖤   ⛓️        ║
-║                                                                  ║
-╚══════════════════════════════════════════════════════════════════╝
+
 ```
 
 <img src="https://github.com/user-attachments/assets/42c2c516-9d2a-488a-9790-2d2c553739e7" width="825">
