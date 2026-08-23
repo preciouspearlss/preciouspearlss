@@ -285,7 +285,6 @@ pearls is fine too! :)
 
 <img src="https://github.com/user-attachments/assets/42c2c516-9d2a-488a-9790-2d2c553739e7" width="825">
 
-### `🖤 black • white • grey • gothic • cute 🖤`
 
 **୨୧ ─────────────── ⛓️ ─────────────── ୨୧**
 
