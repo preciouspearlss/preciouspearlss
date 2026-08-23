@@ -14,9 +14,9 @@
 
 <!-- 💿 SPINNING VINYL -->
 <img
-src="YOUR-SPINNING-VINYL-GIF-HERE"
-width="170"
-height="170"
+src="https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcTrp8oMamDn__HoYVF4mMoR25HGhIHTqbPHa4E10zirLKyNOrHR63WTM2RY&s=10"
+width="200"
+height="200"
 alt="Spinning vinyl">
 
 <br><br>
@@ -31,7 +31,7 @@ alt="Spinning vinyl">
 
 <!-- PROGRESS BAR -->
 
-<code>━━━━━━━━━━━━━━━●━━━━━━━━━━━━</code>
+<code>⬤━━━━━━━━━━━━━━━━━━━━━━━━━━━</code>
 
 <br>
 
