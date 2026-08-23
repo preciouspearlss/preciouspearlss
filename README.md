@@ -19,8 +19,30 @@
 
 ୨୧
 
+
 ༅ I am a generally a nice person rather then very mean and bitter, so please approach me. I appericate c+h! 
 
 ୨୧
+
 dni criteria (!) 
-rape jokers, people who are racist/discriminators, fandoms that are problematic/extremely controversial and hated, , pedos, xenophobes, transphobes, and etc.. 
+
+⊱ rape jokers
+
+⊱ people who are racist/discriminators
+
+⊱ fandoms that are problematic/extremely controversial and hated  
+⊱ pedos 
+
+⊱ racist xenophobics 
+
+⊱ sexist misogynistics
+
+⊱ people who think fiction doesn't affect reality
+
+⊱ ableists
+
+⊱ if you support military aggression
+
+⊱ queerphobics
+
+⊱ anti-semitic, zionist, any kind pro-ship
