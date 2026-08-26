@@ -159,7 +159,7 @@ pearls is fine too! :)
 > ✦ **huge MJ fanatic / hyperfixation!**
 > dw I'm not that type of person to tell you his whole lore lol, maybe little facts!
 
-> ✦ **I use she/her**, but I won't freak out if anyone calls me out of my preferred gender.
+> ✦ **I use she/they**, but I won't freak out if anyone calls me out of my preferred gender.
 
 > ✦ I usually sit in the **FNAF area** or where my friends sit! My locations do differ though — I like to move around a lot.
 
