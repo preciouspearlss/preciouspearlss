@@ -1,9 +1,3 @@
-✰ editing . . 
+✦ hi! 
 
-
-<img src="https://komarev.com/ghpvc/?username=preciouspearlss&style=flat-square&color=111111&label=Profile%20views">
-
-
-<img src="https://img.shields.io/github/followers/preciouspearlss?style=flat-square&color=111111&label=Followers">
-
-
+<img width="640" height="450" alt="17880749293985525113522563041062" src="https://github.com/user-attachments/assets/401becd3-55a8-46af-8a4b-8fa118f48ced" />
