@@ -11,5 +11,7 @@
 
 ɞ onyxx - mj fan - she/they ʚ
 
+beware of the social awkwardness 😼
+
 ✧ ─── .★ .✦ . ★. ─── ✧
 
