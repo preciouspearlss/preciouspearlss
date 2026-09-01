@@ -10,13 +10,17 @@
 
 
 ɞ onyxx - mj fan - she/they ʚ
+
 ♡ ঞ ٭ c+h freely — w2i ! 
 
 beware of the social awkwardness 😼
 
 ∞ . 𝐝𝐢𝐬𝐜𝐨𝐫𝐝 
 ( preciousmj )
+
 ➤ ask 2 friend discord b4 doing so ! 
+
+othr info is in my strwpge ★★
 
 ✧ ─── .★ .✦ . ★. ─── ✧
 
