@@ -10,7 +10,7 @@
 
 
 
-╸— 🪼 dni criteria
+╸— 🪼 [basic dni in my straw](https://preciouspearlss.straw.page/)
 
 ◠◠◠◠◠◠◠
 
