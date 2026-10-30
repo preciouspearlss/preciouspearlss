@@ -12,6 +12,8 @@
 
 ╸— 🪼 [basic dni in my straw](https://preciouspearlss.straw.page/)
 
+╸— 🪼 [my twt account](https://x.com/yattaluvscandy) 
+
 ◠◠◠◠◠◠◠
 
 <img width="374" height="267" alt="9399" src="https://github.com/user-attachments/assets/af9bab47-9caf-4463-bf54-27b1f3f27e39" />
